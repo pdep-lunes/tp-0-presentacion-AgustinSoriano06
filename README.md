@@ -1,6 +1,7 @@
 # TP0: Presentación en GitHub
 
 Alo jelooo, me llamo Agustin Ezequiel Soriano (legajo: 2330301), tengo 19 años y estoy en mi segundo año de la carrera. No trabajo ni programo más allá de la facultad (*pero ojalá hacerlo pronto*).
+
 ![Hyperlink Blocked](isaac_we_love_you.gif ":D")
 
 ## Personality traits:
