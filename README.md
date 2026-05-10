@@ -14,9 +14,13 @@ Alo jelooo, me llamo Agustin Ezequiel Soriano (legajo: 2330301), tengo 19 años 
     6. Deltarune
     7. Inscryption
     8. Slime Rancher
-    9. Five Nights at Freddy's (*en general*)
+    9. Freddy Fazbear's Pizzeria Simulator
 
 - Mi personaje favorito of all media es **Spamton G. Spamton** de Deltarune.
+
+![Hyperlink Blocked](spam_cam.jpg ":D") ![Hyperlink Blocked](spam_stand.jpg ":D") ![Hyperlink Blocked](spam_knuckles.jpg ":D")
+
+- Mi ítem favorito de calidad 4 de The Binding of Isaac: Repentance es "C Section".
 
 - En cuanto a series, actualmente veo Jojo's Bizzare Adventure (*estoy por la parte 6*), The Amazing Digital Circus (*ya tengo entradas*), Helluva Boss y Hazbin Hotel (*gustos culposos*). Diría que mi peli favorita de todos los tiempos es El Extraño Mundo de Jack.
 
@@ -32,6 +36,6 @@ Alo jelooo, me llamo Agustin Ezequiel Soriano (legajo: 2330301), tengo 19 años 
 
 - Pastafrola: la que haya.
 
-- Adjunto una foto del año pasado en el Torreón del Monje, Mar del Plata (*felicidad pre-primeros parciales*). Nos vemos en claseee
+Adjunto una foto del año pasado en el Torreón del Monje, Mar del Plata (*felicidad pre-primeros parciales*). Nos vemos en claseee
 
 ![Hyperlink Blocked](Torreon.jpeg "alo jeloo")
