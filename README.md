@@ -18,7 +18,7 @@ Alo jelooo, me llamo Agustin Ezequiel Soriano (legajo: 2330301), tengo 19 años 
 
 - Mi personaje favorito of all media es **Spamton G. Spamton** de Deltarune.
 
-![Hyperlink Blocked](spam_cam.jpg ":D") ![Hyperlink Blocked](spam_stand.jpg ":D") ![Hyperlink Blocked](spam_knuckles.jpg ":D")
+![Hyperlink Blocked](spam_cam.jpg "NOWS YOUR CHANCE") ![Hyperlink Blocked](spam_stand.jpg "TO BE A") ![Hyperlink Blocked](spam_knuckles.jpg "BIG SHOT")
 
 - Mi ítem favorito de calidad 4 de The Binding of Isaac: Repentance es "C Section".
 
