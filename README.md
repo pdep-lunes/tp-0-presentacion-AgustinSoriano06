@@ -1,7 +1,7 @@
 # TP0: Presentación en GitHub
 
 Alo jelooo, me llamo Agustin Ezequiel Soriano (legajo: 2330301), tengo 19 años y estoy en mi segundo año de la carrera. No trabajo ni programo más allá de la facultad (*pero ojalá hacerlo pronto*).
-![Hyperlink Blocked](isaac_we_love_you.gif ":D")
+![Hyperlink Blocked](isaac_we_love_you.gif ":D") ![Hyperlink Blocked](isaac_celebration.gif "Isaac and his Isaac, Lived alone in a small Isaac on a Isaac. Isaac kept to himself, drawing Isaacs and playing with his Isaacs while his Isaac watched Isaac broadcasts on the Isaac. Life was Isaac, and they were both Isaac. That it, until Isaac's Isaac heard an Isaac from Isaac...")
 
 ## Personality traits:
 - Amo los juegos indies, mis favoritos son:
