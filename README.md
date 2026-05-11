@@ -24,7 +24,7 @@ Alo jelooo, me llamo Agustin Ezequiel Soriano (legajo: 2330301), tengo 19 años 
 
 - Después de siete años de haberlo abierto por primero vez pirateado, he conseguido el 3000000% de The Binding of Isaac: Repentance+.
 
-![Hyperlink Blocked](I_WIN.jpg "Okay so ...Isaac and his parents lived in a small house, on the top of a hill...")
+![Hyperlink Blocked](I_WIN.jpg "Okay so ... Isaac and his parents lived in a small house, on the top of a hill...")
 
 - En cuanto a series, actualmente veo Jojo's Bizzare Adventure (*estoy por la parte 6*), The Amazing Digital Circus (*ya tengo entradas*), Helluva Boss y Hazbin Hotel (*gustos culposos*). Diría que mi peli favorita de todos los tiempos es El Extraño Mundo de Jack.
 
